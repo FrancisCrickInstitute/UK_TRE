@@ -3,7 +3,7 @@
 
 **Welcome to our papers**
 
-Please use the three folders above to look into the documents created for these three working groups.
+Please use the three folders above to download and look into the documents created for these three working groups.
 
 The work here is completed under Chatham House rules where possible and attribution is on a consensual basis.
 
